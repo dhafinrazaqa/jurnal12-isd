@@ -1,0 +1,1 @@
+# jurnal12-isd
